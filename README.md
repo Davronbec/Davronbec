@@ -3,4 +3,4 @@
 - 🌱 I'm currently learning Web Programming.
 - 💞️ I want to cooperate ...
 - 📫 How to contact me sichimlik@gmail.com ;
-https://t.me/web12coder12;
+https://t.me/ow1eb12c1od1er12;
